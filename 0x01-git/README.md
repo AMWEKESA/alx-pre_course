@@ -1,2 +1,2 @@
 ready to do hard things
-and grow
+and grow our mind
